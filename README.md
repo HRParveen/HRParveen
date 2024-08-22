@@ -4,7 +4,7 @@
 - 💞️ I’m looking to hiring A Player techies
 - 📫 Reach me at parveen@sellergize.com
 - 😄 Pronouns: She
-- ⚡ I'm your perfesct guide to Next Career Opportunity.
+- ⚡ I'm your perfect guide to Next Career Opportunity.
 
 <!---
 HRParveen/HRParveen is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
